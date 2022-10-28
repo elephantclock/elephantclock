@@ -1,4 +1,4 @@
-- 👋 Hi, We are Elephantclock.Tech
+- 👋 Hi, We are WWW.ELEPHANTCLOCK.TECH
 - 👀 We solve complex problem through innovations 
 - 🌱 We are in Abu Dhabi, UAE 
 - 💞️ We are looking for collaboration on innovations 
